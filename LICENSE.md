@@ -1,4 +1,4 @@
-
+elite kaizen Script auto-farm auto-upgrade offers the most advanced kaizen Script, with auto-farm and auto-upgrade. Perfect for dominating any match.
 
 
 ---
